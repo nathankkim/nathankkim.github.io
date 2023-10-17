@@ -78,19 +78,15 @@ Service
 * Translation Volunteer (Severance Hospital)
   * Translated in Korean and English for international patients
   * Guided patients around hospital during appointments
-
 * Trojan Health Volunteer (USC Joint Educational Project)
   * Tutor underserved elementary students on topics relevant to their education like math, science, and English
-
 * Scholars Leading Scholars (USC)
   * Recording Committee, Curriculum Committee
   * Guided high school students on college application process and edited their essays
   * Recorded videos and created curriculum for students
-
 * COPE Health Scholar (Adventist Health White Memorial)
   * Assisted nurses with basic patient care in various departments for 280 hours at Adventist Health White Memorial
   * Departments: Telemetry, Pediatrics, Radiology
-
 * Sarang Church Disabled Department (Sarang Community Church)
   * Head Student Volunteer who coordinated 20 volunteers each week
   * Provided physical, emotional, and mental care to students with disabilities
@@ -98,19 +94,11 @@ Service
 Extracurricular Activities
 ======
 * Asian Pacific American Medical Student Association, Finance & Vice President & President - Aug 2020-Present
-
 * Kristos Campus Missions, Freshman Accountability Leader & Inreach & Outreach - Aug 2020-Present
-
 * Personal Tutor - Sep 2018-Present
-
 * Trojans360 Blogger - Sep 2021-Oct 2023
-
 * Korean Culture Night, Associate Director & Executive Producer - Aug 2020-Feb 2023
-
 * Link Crew, Head Team Leader - Jun 2018-Jun 2020
-
 * School Site Council, Chairperson - Aug 2018-Jun 2020
-
 * Biology Olympiad Club, Founder & Vice President & President - Sep 2018-Jun 2020
-
 * Science Olympiad - Sep 2017-Jun 2020

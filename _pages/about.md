@@ -16,6 +16,8 @@ Hi! My name is Nathan, and I'm currently a senior attending USC majoring in Biol
 
 I am currently planning to take one year off before going to medical school with future plans to go into international medicine, family medicine, anesthesiology, or radiology.
 
+My passions lie in Korean history and culture, cooking, video game programming, and polymathic learning of all kinds!
+
 News
 ------
 05/18/2023 - First paper published!!!
@@ -28,9 +30,15 @@ News
 
 Honors
 ------
+Provost's Undergraduate Research Fellowship (PURF) - Sep 2022, Sep 2023
+
+Summer Undergraduate Research Fund (SURF) Fellowship - May 2023
+
 Phi Beta Kappa Honor Society, Feb 2023
 
 USC Mortar Board Honor Society, Torch and Tassel Chapter, May 2022
+
+Undergraduate Research Associates Program (URAP) - Feb 2021
 
 Presidential Scholarship, Aug 2020
 
